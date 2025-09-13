@@ -1,1 +1,1 @@
-# Cyberbezpiecze-stwo---szkolenie
+# Cyberbezpieczestwo-szkolenie
